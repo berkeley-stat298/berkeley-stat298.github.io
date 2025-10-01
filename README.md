@@ -17,7 +17,7 @@ UC Berkeley
 
 ## Offerings
 
-1. [Spring 2025](/spring-2025)
+1. [Fall 2025 010](fall-2025-010)
 
 
 
